@@ -1,2 +1,0 @@
-# nathalybelapatino.github
-My web
